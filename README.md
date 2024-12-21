@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @RosieCatin0786,online novel author,poetess,blogger,online publisher
 - 👀 I’m interested in volunteerism,
-- 🌱 I’m currently learning webinars with various y
-- topics to learn, discuss with.
+- 🌱 I’m currently learning webinars with various topics to learn, discuss with.
