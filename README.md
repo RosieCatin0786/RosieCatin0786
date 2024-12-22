@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RosieCatin0786,online novel author,poetess of more than 30 poems,blogger,online publisher and a song writer.
+- 👋 Hi, I’m @RosieCatin0786,online novel author,poetess of 40 original poems,blogger,online publisher and a song writer.
 
 - 👀 I’m interested in volunteerism,writing poems,bloggs,write song lyrics.
 
